@@ -1,2 +1,2 @@
 # JackSeventeen
-Articles &amp; Creations By JackSeventeen
+Articles &amp; Creations Written By JackSeventeen
